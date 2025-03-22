@@ -72,6 +72,7 @@ I'm a **Full Stack Software Engineer** with 5+ years of experience building web,
 - GPA: 3.32 (WES Verified)
 
 ---
+📄 [View my full resume (PDF)](https://drive.google.com/file/d/11x2qbvcQPMLEUS8akBXk7bBqhAJvsh_a/view?usp=sharing)
 
 ## 🌐 Let's Connect
 
